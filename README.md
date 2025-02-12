@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mostafa.ma.saleh@gmail.com**
 
-- 📄 Know about my experiences [take a look at my CV](https://1drv.ms/w/s!AgOehsyPPzyfg8F_THr5j-qDetnOqQ?e=4Jbe3v)
+- 📄 Know about my experiences [take a look at my CV](https://orcid.org/0009-0002-4349-9254)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
